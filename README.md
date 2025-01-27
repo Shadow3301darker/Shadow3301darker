@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Shadow3301darker
 - 👀 I’m interested in gaming and editing
 - 🌱 I’m currently learning fx/VFX 
-- 💞️ I’m looking to collaborate on naughty dogs
+- 💞️ I’m looking to collaborate on some 3D project to learn more
 - 📫 How to reach me via email:- navsinghnavjot112005@gmail.com
 
 <!---
